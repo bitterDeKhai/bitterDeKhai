@@ -2,7 +2,7 @@
 
 
 ## 📬 Get in touch
-- [LinkedIn](linkedin.com/in/andrew-bury-69a80719a/)
+- [LinkedIn](https://linkedin.com/in/andrew-bury-69a80719a)
 - [Trailblazer](https://trailblazer.me/id/space-creator)
 
 
